@@ -17,8 +17,8 @@ The tasks were completed diligently, following the outlined requirements and gui
 **Best Regards,**
 Tanya Vashistha
 7011202277
-Resume: [ https://drive.google.com/file/d/1c0M2qi_bVSlVxhjkN3vNQJYOxPT3jhMb/view?usp=sharing ]
-Linkedin: [ https://www.linkedin.com/in/tanya-vashistha-508974230/ ]
+[Resume:] ( https://drive.google.com/file/d/1c0M2qi_bVSlVxhjkN3vNQJYOxPT3jhMb/view?usp=sharing )
+[Linkedin:] ( https://www.linkedin.com/in/tanya-vashistha-508974230/ )
 
 
 
